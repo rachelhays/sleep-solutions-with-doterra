@@ -16,7 +16,12 @@ Sleep Solutions with doTerra
 TARGET AUDIENCE:	
 
 New customers and Wellness Advocates with doTerra (an essential oils company) who are learning foundational information about sleep health products.
-Why this instruction is needed	With the ongoing improvements in technology, researchers have been to learn more about sleep, average human sleep performance, issues in disturbances of the sleep phases, the connection to an overworked population, and the like. doTerra formulated new products to meet the demands of their customer base in solving issues in sleep health. Products in their Sleep Wellness Program, for example, are relatively new, so many are still learning about them and how to leverage them for improved overall health and wellness.
+
+
+
+WHY THIS INSTRUCTION IS NEEDED:	
+
+With the ongoing improvements in technology, researchers have been to learn more about sleep, average human sleep performance, issues in disturbances of the sleep phases, the connection to an overworked population, and the like. doTerra formulated new products to meet the demands of their customer base in solving issues in sleep health. Products in their Sleep Wellness Program, for example, are relatively new, so many are still learning about them and how to leverage them for improved overall health and wellness.
 
 
 
