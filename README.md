@@ -2,7 +2,10 @@
 Course "Sleep Solutions with doTerra" created with Rise360
 
 Rachel H. Smith
+
 IDT 7090 Assignment Project Description for Articulate360 Project
+
+
 
 INSTRUCTIONAL MODULE TITLE:  	
 
